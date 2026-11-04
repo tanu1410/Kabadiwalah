@@ -1,1 +1,2 @@
 # Kabadiwalah
+We at Kabadiwallah are committed to revolutionizing urban waste management by providing an on-demand digital platform for scheduled doorstep scrap collection. We connect urban households with certified collectors using transparent pricing, digital weighing, and instant cash or donation payouts. By optimizing collection routes and linking scrap directly to recycling industries and green-energy plants, we empower local collectors and divert domestic waste from landfills into a sustainable circular economy.
